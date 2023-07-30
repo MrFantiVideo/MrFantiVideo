@@ -1,4 +1,4 @@
-### Je réalise des vidéos en tant que passionné à mes heures perdues.<br><br>
+### Je réalise des vidéos en tant que passionné dans mon temps libre.<br><br>
 
 **💻 · CONFIGURATION**
 
